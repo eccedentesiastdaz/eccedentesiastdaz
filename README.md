@@ -13,7 +13,7 @@
 <strong>♱</strong>
 
 𝕜𝕟 . 𝕞𝕖𝕪 <br>
-int (w2i) & c+h always welcome. i dont bite dw :3c <br>
+<em>int (w2i) & c+h always welcome. i dont bite dw :3c</em> <br>
   <a href="https://eccedentesiastdaz.straw.page">straw</a>.page
   ·
   <a href="https://eccedentesiastdaz.atabook.org">ata</a>book
