@@ -14,9 +14,13 @@
 
 𝕜𝕟 . 𝕞𝕖𝕪 <br>
 <em>int (w2i) & c+h always welcome. i dont bite dw :3c</em> <br>
-  <a href="https://eccedentesiastdaz.straw.page">straw</a>.page
-  ·
-  <a href="https://eccedentesiastdaz.atabook.org">ata</a>book
+  <a href="https://www.tiktok.com/@knmeomeo.x3?_r=1&_t=ZS-94pEbyPaX9c">tik</a>tok
+  •
+  <a href="https://www.tumblr.com/knmeomeox3?source=share">tum</a>blr
+  •
+  <a href="https://www.instagram.com/knmeomeo.x3?igsh=dzMzd3Z3MWIwNmpj">ins</a>tagram
+  •
+  <a href="http://t.me/knmeomeo">tele</a>gram
 </p>
 
 </div>
