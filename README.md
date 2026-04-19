@@ -3,7 +3,7 @@
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=eccedentesiastdaz&color=6e0000&style=for-the-badge)
 </p>
 
-  <img width="350" height="2048" alt="15zai" src="https://github.com/user-attachments/assets/7cbc8f10-acfb-466c-9cf1-dcac5b5c2bb8" /> <br>
+  <img width="350" height="350" alt="15zai" src="https://github.com/user-attachments/assets/aa0618cf-90a7-4ac3-8a17-f992b9108fa4" /> <br>
 <del>my art . do not repost</del> <br>
                𓂋 <br>
 • . ݁₊ ⊹ . ʚ♡ɞ . ⊹ ₊ ݁. • <br>
